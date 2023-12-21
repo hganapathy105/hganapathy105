@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @hganapathy105
-- 👀 I’m interested in reading, Roblox, making smoothies, and doing my nails
-- 🌱 I’m currently learning about product management, business economics, and ancient civilizations
+- 👀 I’m interested in reading, Roblox, making smoothies, and doing my nails.
+- 🌱 I’m currently learning about product management, business economics, and ancient civilizations.
 - 💞️ I’m looking to collaborate on investing in startups and potentially game development.
 - 📫 How to reach me email: hganapathy2@gmail.com
 
